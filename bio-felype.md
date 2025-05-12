@@ -1,0 +1,1 @@
+Meu nome é Felype, sou Cristão, tenho 19  anos e busco ser um Bom profissional na área de T.I, sendo um desenvolvedor JAVA, gosto muito de música e tocar vários instrumentos, gosto de ler, curto muito a solitude e também estar com a minha galera.
